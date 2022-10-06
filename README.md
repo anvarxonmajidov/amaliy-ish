@@ -1,1 +1,1 @@
-# amaliy-ish
+# Darsdagi amaliy ishlarim
